@@ -7,13 +7,12 @@
 
  &nbsp;&nbsp; 
 
-- 🌱 I’m currently learning **nothing**.
 
-- 👀 I'm currently focusing on **JavaScript**.
+- 👀 uso  **JavaScript** melhor area <3
 
-- 📝 I'm currently working on [`INSTAGRAM`](https://instagram.com/arpunchs)
+- vai la na minha pagina de shit [`INSTAGRAM`](https://instagram.com/cychris_fds.trash)
 
-- 👥 Subscribe channel kami [`YOUTUBE`](https://youtube.com/c/DrawlNag)
+- manda nude no zap [`ZAPZAP`](https://wa.me//5581996207906)
 
 
 
