@@ -1,4 +1,4 @@
-<h1 align="center">WELCOME BACK TO <img src="https://user-images.githubusercontent.com/1303154/88677602-1635ba80-d120-11ea-84d8-d263ba5fc3c0.gif" width="60px" alt="hi"><br>DRAWL NAG !</h1>
+<h1 align="center">BEM VINDO KRLKKK <img src="https://user-images.githubusercontent.com/1303154/88677602-1635ba80-d120-11ea-84d8-d263ba5fc3c0.gif" width="60px" alt="hi"><br>OLHA AS GIT E SEGUE NOIS !</h1>
 
 <p align="center">
   <img src="https://github.com/cychrisfds/banners/blob/main/97e5596692d0d0068247e5821993d1a4.jpg" />
